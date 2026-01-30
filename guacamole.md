@@ -9,5 +9,5 @@
 - chop onion
 - squeeze lime
 - add salt
-- and mix well
+- and mix with a fork until combined
 >Delicioso
